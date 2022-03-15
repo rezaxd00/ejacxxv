@@ -31,7 +31,7 @@
 ## Credit
 TERIMAKASIH UNTUK
 
-*   [VICKY](https://t.me/vckyouubitch) - ⚡Ejaa-Xccv⚡
+*   [Ejaa](https://t.me/rzxyx) - ⚡Ejaa-Xccv⚡
 *   [KOALA](https://t.me/manusiarakitann) - KAMPANG BOT
 *   [TEAMULTROID](https://github.com/TeamUltroid) - ULTROID
 *    DAN MASIH BANYAK LAGI TOT
